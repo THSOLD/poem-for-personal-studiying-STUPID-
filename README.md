@@ -1,4 +1,1 @@
 # poem-for-personal-studiying-STUPID-
->CUT MY LIFE IN 2 PIZZAS
->IT'S A PRIVATE RESORT!
->MY VACATION, WITH PIZZAS!
